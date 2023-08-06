@@ -1,1 +1,1 @@
-## CS student at the University of Salamanca.
+## CS student at University of Salamanca.
