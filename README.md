@@ -1,1 +1,1 @@
-## CS student at University of Salamanca.
+## CS Graduate. MSc in AI student.
